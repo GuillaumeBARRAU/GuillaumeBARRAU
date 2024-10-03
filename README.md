@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @GuillaumeBARRAU
-- 👀 I’m interested in pizza
+- 👀 I’m interested in everything
 - 🌱 I’m currently learning everything
 - 💞️ I’m looking to collaborate on everybody
 - 😄 Pronouns: Gui-Jah-Man
